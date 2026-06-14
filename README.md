@@ -24,4 +24,4 @@ $$\frac{5505}{11} = (ост.5) \Rightarrow C_{11} = 5$$
 
 ---
 
-Відео захисту:
+Відео захисту: https://www.youtube.com/watch?v=f-mvqjyrdEw
